@@ -1,0 +1,2 @@
+# Presentaciones_Evento_VISIONARIAS_DEL_DATO_Innovaci-n_-tica_y_liderazgo_femenino-en-la-era-de-la-IA
+En conmemoración del Día Internacional de la Mujer, desde Data Ladies celebramos con mucha emoción nuestra primera coorganización de este gran evento junto a IDIA (Universidad Ricardo Palma), un espacio creado para impulsar el liderazgo femenino, la innovación y la conversación ética en torno a la inteligencia artificial.
